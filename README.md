@@ -1,4 +1,4 @@
-Allons enfant de la patrie,
+Allons adultes de la mère patrie,
 Le jour de gloire est arrivé!
 Contre nous de la tyrannie,
 L'étendard sanglant est levé
